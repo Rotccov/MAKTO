@@ -1,2 +1,2 @@
 
-link fisier apk: https://mau716.synology.me:45641/sharing/9JgjYmLn4
+link fisier apk: https://drive.google.com/file/d/1Ww4hriU_EwFSV39-ozvIecTuYnWf2yQR/view?usp=sharing

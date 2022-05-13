@@ -1,7 +1,7 @@
 # proiect-MAKTO
 
-Numele echipei: 
+Numele echipei: MAKTO
 
 Scoala: 
 
-Pitch: 
+Pitch: https://drive.google.com/file/d/135Fv8QIY2sFqAkhIUqLlsKV_ZQCt3ZW9/view?usp=sharing
